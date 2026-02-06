@@ -6,3 +6,5 @@ Showing the common and exotic plants and what's already instinct and cannot be s
 🏵️💐🌷🌸💠🌹💮🌺🥀🪷🌻🌼🪻
 
 Will update it in Saturday if I have time
+
+just feeling lazy.

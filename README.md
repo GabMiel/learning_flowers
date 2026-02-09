@@ -12,3 +12,5 @@ just feeling lazy.
 A long weekend 
 
 no one will gonna read this anyway.
+
+Time will only tell 

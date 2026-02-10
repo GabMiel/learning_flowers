@@ -14,3 +14,5 @@ A long weekend
 no one will gonna read this anyway.
 
 Time will only tell 
+
+I am sick today, and this code feels like it become a diary of mine.

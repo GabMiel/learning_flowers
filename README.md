@@ -16,3 +16,5 @@ no one will gonna read this anyway.
 Time will only tell 
 
 I am sick today, and this code feels like it become a diary of mine.
+
+I need to learn to use other tools, i just want drag and drop.

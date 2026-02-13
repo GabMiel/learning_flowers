@@ -18,3 +18,5 @@ Time will only tell
 I am sick today, and this code feels like it become a diary of mine.
 
 I need to learn to use other tools, i just want drag and drop.
+
+Just typing something to keep the streak going
